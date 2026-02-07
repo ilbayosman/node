@@ -1,1 +1,1 @@
-The longest English word is 189,819 letters long.
+A day on Venus is longer than a year on Venus.
