@@ -1,1 +1,1 @@
-You can’t hum while holding your nose closed.
+The longest English word is 189,819 letters long.
