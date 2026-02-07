@@ -1,1 +1,1 @@
-The longest hiccuping spree lasted 68 years.
+Humans are the only animals with chins.
