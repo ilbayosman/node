@@ -1,1 +1,1 @@
-Tigers have striped skin, not just striped fur.
+Humans are the only animals with chins.
