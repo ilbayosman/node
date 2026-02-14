@@ -1,1 +1,1 @@
-You can hear a blue whale’s heartbeat from over 2 miles away.
+The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
