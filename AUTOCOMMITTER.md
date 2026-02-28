@@ -1,1 +1,1 @@
-A bolt of lightning is hotter than the surface of the sun.
+A planet exists where it rains molten glass sideways.
