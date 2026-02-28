@@ -1,1 +1,1 @@
-Most wasabi isn’t real wasabi — it’s colored horseradish.
+Humans are the only animals with chins.
