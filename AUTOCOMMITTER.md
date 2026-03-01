@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+A group of porcupines is called a "prickle."
