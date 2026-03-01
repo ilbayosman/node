@@ -1,1 +1,1 @@
-A group of porcupines is called a "prickle."
+The hashtag symbol is technically called an octothorpe.
