@@ -1,1 +1,1 @@
-Some cats are allergic to humans.
+The tongue is the only muscle in the body attached from one end.
