@@ -1,1 +1,1 @@
-Sea otters hold hands when they sleep to avoid drifting apart.
+Sloths can hold their breath longer than dolphins can.
