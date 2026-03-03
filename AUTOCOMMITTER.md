@@ -1,1 +1,1 @@
-Sloths can hold their breath longer than dolphins can.
+You can’t hum while holding your nose closed.
