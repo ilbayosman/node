@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+The hashtag symbol used to be called the pound sign.
