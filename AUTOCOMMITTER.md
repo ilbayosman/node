@@ -1,1 +1,1 @@
-You can’t hum while holding your nose closed.
+A planet exists where it rains molten glass sideways.
