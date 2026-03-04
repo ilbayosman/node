@@ -1,1 +1,1 @@
-A planet exists where it rains molten glass sideways.
+Hot water freezes faster than cold water — it’s called the Mpemba effect.
