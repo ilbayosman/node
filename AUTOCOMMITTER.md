@@ -1,1 +1,1 @@
-Some cats are allergic to humans.
+Cows have best friends and get stressed when separated.
