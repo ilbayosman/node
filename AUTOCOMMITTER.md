@@ -1,1 +1,1 @@
-Sloths can hold their breath longer than dolphins can.
+Some cats are allergic to humans.
