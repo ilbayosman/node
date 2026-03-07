@@ -1,1 +1,1 @@
-A day on Earth used to be only 18 hours long.
+Some cats are allergic to humans.
