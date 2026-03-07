@@ -1,1 +1,1 @@
-The hashtag symbol is technically called an octothorpe.
+A single cloud can weigh more than a million pounds.
