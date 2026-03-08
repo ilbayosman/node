@@ -1,1 +1,1 @@
-Octopuses have nine brains.
+You can’t sneeze with your eyes open.
