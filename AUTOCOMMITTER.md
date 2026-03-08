@@ -1,1 +1,1 @@
-A narwhal’s tusk reveals its health and diet.
+The world’s largest snowflake was 15 inches wide.
