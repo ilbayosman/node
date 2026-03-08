@@ -1,1 +1,1 @@
-You can’t sneeze with your eyes open.
+Avocados are toxic to birds.
