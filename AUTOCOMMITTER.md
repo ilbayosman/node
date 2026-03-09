@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+Alaska is the state with the highest percentage of people who walk to work.
