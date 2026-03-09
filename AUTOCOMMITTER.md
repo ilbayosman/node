@@ -1,1 +1,1 @@
-Alaska is the state with the highest percentage of people who walk to work.
+You can hear a blue whale’s heartbeat from over 2 miles away.
