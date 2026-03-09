@@ -1,1 +1,1 @@
-Your taste buds have a lifespan of about 10 days.
+A group of ferrets is called a "business."
