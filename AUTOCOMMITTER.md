@@ -1,1 +1,1 @@
-Your fingernails grow faster on your dominant hand.
+Your taste buds have a lifespan of about 10 days.
