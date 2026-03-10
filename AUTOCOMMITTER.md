@@ -1,1 +1,1 @@
-You can hear a blue whale’s heartbeat from over 2 miles away.
+The first oranges weren’t orange — they were green.
