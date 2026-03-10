@@ -1,1 +1,1 @@
-The first oranges weren’t orange — they were green.
+Sea otters hold hands when they sleep to avoid drifting apart.
