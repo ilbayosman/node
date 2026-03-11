@@ -1,1 +1,1 @@
-It rains diamonds on Jupiter and Saturn.
+Pineapples take two years to grow.
