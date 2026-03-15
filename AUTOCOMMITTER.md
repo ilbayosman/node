@@ -1,1 +1,1 @@
-Avocados are toxic to birds.
+Antarctica is the only continent without reptiles.
