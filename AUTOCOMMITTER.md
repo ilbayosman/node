@@ -1,1 +1,1 @@
-Pigeons can do math.
+Sharks are the only fish that can blink with both eyes.
