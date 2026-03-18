@@ -1,1 +1,1 @@
-A snail can grow back its eye if it gets cut off.
+Sloths can hold their breath longer than dolphins can.
