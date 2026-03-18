@@ -1,1 +1,1 @@
-Sloths can hold their breath longer than dolphins can.
+Hot water freezes faster than cold water — it’s called the Mpemba effect.
