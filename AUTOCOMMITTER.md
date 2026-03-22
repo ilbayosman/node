@@ -1,1 +1,1 @@
-Hot water freezes faster than cold water — it’s called the Mpemba effect.
+A group of porcupines is called a "prickle."
