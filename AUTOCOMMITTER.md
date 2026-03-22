@@ -1,1 +1,1 @@
-Humans are the only animals with chins.
+Your taste buds have a lifespan of about 10 days.
