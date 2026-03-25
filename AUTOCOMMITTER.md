@@ -1,1 +1,1 @@
-Coca-Cola would be green without coloring.
+There are more stars in the universe than grains of sand on Earth.
