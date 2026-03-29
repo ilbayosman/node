@@ -1,1 +1,1 @@
-The hashtag symbol used to be called the pound sign.
+The human stomach gets a new lining every few days.
