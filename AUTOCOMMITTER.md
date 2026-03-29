@@ -1,1 +1,1 @@
-You burn more calories sleeping than watching TV.
+Your fingernails grow faster on your dominant hand.
