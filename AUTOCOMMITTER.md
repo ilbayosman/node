@@ -1,1 +1,1 @@
-Scotland has 421 words for "snow."
+The original London Bridge is now in Arizona.
