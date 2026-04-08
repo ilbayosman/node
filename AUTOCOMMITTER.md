@@ -1,1 +1,1 @@
-The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
+A day on Earth used to be only 18 hours long.
