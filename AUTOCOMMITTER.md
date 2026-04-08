@@ -1,1 +1,1 @@
-The longest hiccuping spree lasted 68 years.
+Cows can walk up stairs but not down.
