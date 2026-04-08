@@ -1,1 +1,1 @@
-Bubble wrap was originally intended to be wallpaper.
+The longest hiccuping spree lasted 68 years.
