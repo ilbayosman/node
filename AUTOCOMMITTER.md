@@ -1,1 +1,1 @@
-The wood frog can hold its pee for up to eight months.
+The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
