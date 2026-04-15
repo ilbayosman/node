@@ -1,1 +1,1 @@
-Cows can walk up stairs but not down.
+Octopuses have three hearts.
