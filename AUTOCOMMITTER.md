@@ -1,1 +1,1 @@
-The inventor of the frisbee was turned into a frisbee after he died.
+Your fingernails grow faster on your dominant hand.
