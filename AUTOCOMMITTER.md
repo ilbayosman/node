@@ -1,1 +1,1 @@
-Octopuses have three hearts.
+The wood frog can hold its pee for up to eight months.
