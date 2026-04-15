@@ -1,1 +1,1 @@
-Your fingernails grow faster on your dominant hand.
+The longest hiccuping spree lasted 68 years.
