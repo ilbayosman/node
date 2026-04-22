@@ -1,1 +1,1 @@
-Mantis shrimp can punch with the speed of a bullet.
+A bolt of lightning travels at about 270,000 mph.
