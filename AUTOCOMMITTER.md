@@ -1,1 +1,1 @@
-A bolt of lightning travels at about 270,000 mph.
+The inventor of the microwave received only $2 for his discovery.
