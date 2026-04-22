@@ -1,1 +1,1 @@
-The wood frog can hold its pee for up to eight months.
+A group of porcupines is called a "prickle."
