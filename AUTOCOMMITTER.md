@@ -1,1 +1,1 @@
-The inventor of the microwave received only $2 for his discovery.
+The inventor of the frisbee was turned into a frisbee after he died.
