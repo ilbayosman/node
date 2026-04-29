@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+You can’t hum while holding your nose closed.
