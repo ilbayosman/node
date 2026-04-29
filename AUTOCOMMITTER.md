@@ -1,1 +1,1 @@
-Wombat poop is cube-shaped.
+The human stomach gets a new lining every few days.
