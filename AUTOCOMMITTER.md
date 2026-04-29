@@ -1,1 +1,1 @@
-The inventor of the frisbee was turned into a frisbee after he died.
+The tongue is the only muscle in the body attached from one end.
