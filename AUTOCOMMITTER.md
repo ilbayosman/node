@@ -1,1 +1,1 @@
-A group of porcupines is called a "prickle."
+The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
