@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+A group of porcupines is called a "prickle."
