@@ -1,1 +1,1 @@
-A day on Venus is longer than a year on Venus.
+You can hear a blue whale’s heartbeat from over 2 miles away.
