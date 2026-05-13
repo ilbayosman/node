@@ -1,1 +1,1 @@
-The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
+Sea otters hold hands when they sleep to avoid drifting apart.
