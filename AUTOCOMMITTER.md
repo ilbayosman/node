@@ -1,1 +1,1 @@
-Scotland has 421 words for "snow."
+The inventor of the Pringles can is buried in one.
