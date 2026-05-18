@@ -1,1 +1,1 @@
-The inventor of the Pringles can is buried in one.
+Cows have best friends and get stressed when separated.
