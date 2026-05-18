@@ -1,1 +1,1 @@
-A group of crows is called a murder.
+Hot water freezes faster than cold water — it’s called the Mpemba effect.
