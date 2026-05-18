@@ -1,1 +1,1 @@
-One spaghetti noodle is called a spaghetto.
+The unicorn is the national animal of Scotland.
