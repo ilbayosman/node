@@ -1,1 +1,1 @@
-Pineapples take two years to grow.
+A group of flamingos is called a "flamboyance."
