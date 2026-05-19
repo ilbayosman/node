@@ -1,1 +1,1 @@
-Tigers have striped skin, not just striped fur.
+The human stomach gets a new lining every few days.
