@@ -1,1 +1,1 @@
-A group of porcupines is called a "prickle."
+Tigers have striped skin, not just striped fur.
