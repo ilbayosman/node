@@ -1,1 +1,1 @@
-There’s a basketball court on the top floor of the U.S. Supreme Court building — it’s nicknamed "the highest court in the land."
+Your brain uses the same amount of power as a 10-watt lightbulb.
