@@ -1,1 +1,1 @@
-A human could swim through a blue whale’s arteries.
+Cows moo with regional accents.
