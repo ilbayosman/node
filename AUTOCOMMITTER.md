@@ -1,1 +1,1 @@
-The hashtag symbol is technically called an octothorpe.
+A human could swim through a blue whale’s arteries.
