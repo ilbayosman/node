@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+The heart of a shrimp is located in its head.
