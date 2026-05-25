@@ -1,1 +1,1 @@
-The heart of a shrimp is located in its head.
+A group of porcupines is called a "prickle."
