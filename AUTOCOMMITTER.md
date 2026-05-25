@@ -1,1 +1,1 @@
-A day on Venus is longer than a year on Venus.
+You burn more calories sleeping than watching TV.
