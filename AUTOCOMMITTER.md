@@ -1,1 +1,1 @@
-Antarctica is the only continent without reptiles.
+The hashtag symbol is technically called an octothorpe.
