@@ -1,1 +1,1 @@
-An apple, potato, and onion all taste the same if you eat them with your nose plugged.
+Scotland has 421 words for "snow."
