@@ -1,1 +1,1 @@
-Slugs have four noses.
+One spaghetti noodle is called a spaghetto.
