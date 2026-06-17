@@ -1,1 +1,1 @@
-A group of ferrets is called a "business."
+The longest English word is 189,819 letters long.
