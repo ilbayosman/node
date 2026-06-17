@@ -1,1 +1,1 @@
-A group of porcupines is called a "prickle."
+Most wasabi isn’t real wasabi — it’s colored horseradish.
