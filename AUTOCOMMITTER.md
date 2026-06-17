@@ -1,1 +1,1 @@
-A day on Venus is longer than a year on Venus.
+Slugs have four noses.
