@@ -1,1 +1,1 @@
-The longest English word is 189,819 letters long.
+Goats have rectangular pupils.
