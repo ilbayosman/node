@@ -1,1 +1,1 @@
-Worms can have up to five hearts.
+Bananas are berries, but strawberries are not.
