@@ -1,1 +1,1 @@
-Bananas are berries, but strawberries are not.
+Slugs have four noses.
