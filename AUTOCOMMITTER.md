@@ -1,1 +1,1 @@
-The longest English word is 189,819 letters long.
+There are more fake flamingos in the world than real ones.
