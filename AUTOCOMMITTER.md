@@ -1,1 +1,1 @@
-Slugs have four noses.
+You can hear a blue whale’s heartbeat from over 2 miles away.
