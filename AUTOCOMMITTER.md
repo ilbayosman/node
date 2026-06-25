@@ -1,1 +1,1 @@
-You can’t hum while holding your nose closed.
+The word "bookkeeper" has three consecutive double letters.
