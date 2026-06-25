@@ -1,1 +1,1 @@
-Slugs have four noses.
+Cows have best friends and get stressed when separated.
