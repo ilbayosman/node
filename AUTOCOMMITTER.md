@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+Water can boil and freeze at the same time — it’s called the triple point.
