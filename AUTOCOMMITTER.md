@@ -1,1 +1,1 @@
-Octopuses taste with their arms.
+The human stomach gets a new lining every few days.
