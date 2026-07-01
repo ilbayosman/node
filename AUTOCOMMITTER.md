@@ -1,1 +1,1 @@
-Cows can walk up stairs but not down.
+Octopuses taste with their arms.
