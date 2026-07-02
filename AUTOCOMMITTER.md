@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+The word "strengths" is the longest word with one vowel.
