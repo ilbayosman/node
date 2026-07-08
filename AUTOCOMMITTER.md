@@ -1,1 +1,1 @@
-Cows can walk up stairs but not down.
+A snail can grow back its eye if it gets cut off.
