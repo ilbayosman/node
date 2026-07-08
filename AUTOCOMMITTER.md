@@ -1,1 +1,1 @@
-Some cats are allergic to humans.
+Humans are the only animals with chins.
