@@ -1,1 +1,1 @@
-A group of crows is called a murder.
+Bees sometimes sting other bees.
