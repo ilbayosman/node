@@ -1,1 +1,1 @@
-The longest English word is 189,819 letters long.
+A snail can grow back its eye if it gets cut off.
