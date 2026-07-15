@@ -1,1 +1,1 @@
-Humans glow in the dark — very faintly.
+Your taste buds have a lifespan of about 10 days.
