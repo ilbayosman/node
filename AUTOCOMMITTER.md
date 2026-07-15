@@ -1,1 +1,1 @@
-A day on Venus is longer than a year on Venus.
+A group of crows is called a murder.
