@@ -1,1 +1,1 @@
-There are more stars in the universe than grains of sand on Earth.
+Humans glow in the dark — very faintly.
