@@ -1,1 +1,1 @@
-Bananas are berries, but strawberries are not.
+lemons float in water but limes sink.
