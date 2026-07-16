@@ -1,1 +1,1 @@
-Pigeons can do math.
+Wombat poop is cube-shaped.
