@@ -1,1 +1,1 @@
-lemons float in water but limes sink.
+A bolt of lightning travels at about 270,000 mph.
