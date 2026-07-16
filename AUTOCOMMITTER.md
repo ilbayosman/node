@@ -1,1 +1,1 @@
-Wombat poop is cube-shaped.
+One spaghetti noodle is called a spaghetto.
