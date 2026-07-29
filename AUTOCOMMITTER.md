@@ -1,1 +1,1 @@
-A bolt of lightning travels at about 270,000 mph.
+Scotland has 421 words for "snow."
