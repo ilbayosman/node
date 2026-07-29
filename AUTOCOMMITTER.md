@@ -1,1 +1,1 @@
-The original London Bridge is now in Arizona.
+A narwhal’s tusk reveals its health and diet.
