@@ -1,1 +1,1 @@
-The longest English word is 189,819 letters long.
+Your brain uses the same amount of power as a 10-watt lightbulb.
