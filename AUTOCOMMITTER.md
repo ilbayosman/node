@@ -1,1 +1,1 @@
-You can hear a blue whale’s heartbeat from over 2 miles away.
+The inventor of the frisbee was turned into a frisbee after he died.
