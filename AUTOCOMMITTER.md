@@ -1,1 +1,1 @@
-A day on Earth used to be only 18 hours long.
+You can hear a blue whale’s heartbeat from over 2 miles away.
