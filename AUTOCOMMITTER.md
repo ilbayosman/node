@@ -1,1 +1,1 @@
-The inventor of the Pringles can is buried in one.
+The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
