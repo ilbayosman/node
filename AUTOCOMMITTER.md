@@ -1,1 +1,1 @@
-Worms can have up to five hearts.
+Pigeons can do math.
