@@ -1,1 +1,1 @@
-The longest hiccuping spree lasted 68 years.
+Mantis shrimp can punch with the speed of a bullet.
