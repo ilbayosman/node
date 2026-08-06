@@ -1,1 +1,1 @@
-The tongue is the only muscle in the body attached from one end.
+There are more fake flamingos in the world than real ones.
