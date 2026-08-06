@@ -1,1 +1,1 @@
-There’s a basketball court on the top floor of the U.S. Supreme Court building — it’s nicknamed "the highest court in the land."
+The total weight of all ants on Earth is roughly equal to that of all humans.
