@@ -1,1 +1,1 @@
-Sea otters hold hands when they sleep to avoid drifting apart.
+Newborns don’t shed tears until about two weeks old.
