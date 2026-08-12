@@ -1,1 +1,1 @@
-Wombat poop is cube-shaped.
+Pineapples take two years to grow.
