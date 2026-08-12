@@ -1,1 +1,1 @@
-Pigeons can do math.
+Newborns don’t shed tears until about two weeks old.
