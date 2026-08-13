@@ -1,1 +1,1 @@
-A group of flamingos is called a "flamboyance."
+Octopuses taste with their arms.
