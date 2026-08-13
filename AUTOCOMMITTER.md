@@ -1,1 +1,1 @@
-Octopuses taste with their arms.
+Worms can have up to five hearts.
