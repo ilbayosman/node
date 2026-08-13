@@ -1,1 +1,1 @@
-Newborns don’t shed tears until about two weeks old.
+The unicorn is the national animal of Scotland.
