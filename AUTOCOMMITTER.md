@@ -1,1 +1,1 @@
-Worms can have up to five hearts.
+Tigers have striped skin, not just striped fur.
