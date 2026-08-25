@@ -1,1 +1,1 @@
-One spaghetti noodle is called a spaghetto.
+Mantis shrimp can punch with the speed of a bullet.
