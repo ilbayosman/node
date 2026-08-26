@@ -1,1 +1,1 @@
-Octopuses taste with their arms.
+Antarctica is the only continent without reptiles.
