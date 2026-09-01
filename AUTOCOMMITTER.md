@@ -1,1 +1,1 @@
-A day on Venus is longer than a year on Venus.
+Pineapples take two years to grow.
