@@ -1,1 +1,1 @@
-Pineapples take two years to grow.
+Tigers have striped skin, not just striped fur.
