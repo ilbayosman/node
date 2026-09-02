@@ -1,1 +1,1 @@
-The inventor of the microwave received only $2 for his discovery.
+The first oranges weren’t orange — they were green.
