@@ -1,1 +1,1 @@
-You can hear a blue whale’s heartbeat from over 2 miles away.
+A bolt of lightning is hotter than the surface of the sun.
