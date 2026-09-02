@@ -1,1 +1,1 @@
-Most wasabi isn’t real wasabi — it’s colored horseradish.
+A day on Venus is longer than a year on Venus.
