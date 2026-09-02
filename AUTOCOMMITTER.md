@@ -1,1 +1,1 @@
-Tigers have striped skin, not just striped fur.
+The inventor of the microwave received only $2 for his discovery.
