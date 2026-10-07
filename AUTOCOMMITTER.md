@@ -1,1 +1,1 @@
-A bolt of lightning strikes somewhere on Earth 100 times every second.
+Sea otters hold hands when they sleep to avoid drifting apart.
