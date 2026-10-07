@@ -1,1 +1,1 @@
-The first oranges weren’t orange — they were green.
+A bolt of lightning strikes somewhere on Earth 100 times every second.
