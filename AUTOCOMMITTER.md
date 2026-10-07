@@ -1,1 +1,1 @@
-A bolt of lightning is hotter than the surface of the sun.
+The shortest war in history was between Britain and Zanzibar — it lasted 38 minutes.
