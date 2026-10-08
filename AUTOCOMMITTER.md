@@ -1,1 +1,1 @@
-Water can boil and freeze at the same time — it’s called the triple point.
+Sea otters hold hands when they sleep to avoid drifting apart.
