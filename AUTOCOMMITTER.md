@@ -1,1 +1,1 @@
-A group of porcupines is called a "prickle."
+lemons float in water but limes sink.
