@@ -1,1 +1,1 @@
-The hashtag symbol used to be called the pound sign.
+Bananas are berries, but strawberries are not.
