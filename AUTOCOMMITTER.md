@@ -1,1 +1,1 @@
-A group of ferrets is called a "business."
+Cows moo with regional accents.
