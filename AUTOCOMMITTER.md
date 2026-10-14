@@ -1,1 +1,1 @@
-lemons float in water but limes sink.
+Your fingernails grow faster on your dominant hand.
