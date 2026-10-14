@@ -1,1 +1,1 @@
-Sea otters hold hands when they sleep to avoid drifting apart.
+Cows can walk up stairs but not down.
