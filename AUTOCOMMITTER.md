@@ -1,1 +1,1 @@
-Your fingernails grow faster on your dominant hand.
+You can’t hum while holding your nose closed.
