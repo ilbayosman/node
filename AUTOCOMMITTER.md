@@ -1,1 +1,1 @@
-Your taste buds have a lifespan of about 10 days.
+Chewing gum while cutting onions can help prevent tears.
