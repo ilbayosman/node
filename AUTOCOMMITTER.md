@@ -1,1 +1,1 @@
-Wombat poop is cube-shaped.
+The word "strengths" is the longest word with one vowel.
