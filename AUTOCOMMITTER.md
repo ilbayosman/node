@@ -1,1 +1,1 @@
-You can’t sneeze with your eyes open.
+Wombat poop is cube-shaped.
