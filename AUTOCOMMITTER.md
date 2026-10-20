@@ -1,1 +1,1 @@
-The longest English word is 189,819 letters long.
+The hashtag symbol used to be called the pound sign.
