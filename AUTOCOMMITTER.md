@@ -1,1 +1,1 @@
-Humans are the only animals with chins.
+The longest English word is 189,819 letters long.
