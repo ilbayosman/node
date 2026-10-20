@@ -1,1 +1,1 @@
-Bananas are berries, but strawberries are not.
+You can’t sneeze with your eyes open.
