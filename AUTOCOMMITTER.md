@@ -1,1 +1,1 @@
-The unicorn is the national animal of Scotland.
+Tigers have striped skin, not just striped fur.
