@@ -1,1 +1,1 @@
-A snail can grow back its eye if it gets cut off.
+Elephants are the only animals that can’t jump.
