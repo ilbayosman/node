@@ -1,1 +1,1 @@
-Chewing gum while cutting onions can help prevent tears.
+The longest English word is 189,819 letters long.
