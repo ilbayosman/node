@@ -1,1 +1,1 @@
-The longest English word is 189,819 letters long.
+The inventor of the Pringles can is buried in one.
