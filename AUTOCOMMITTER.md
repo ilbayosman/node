@@ -1,1 +1,1 @@
-The unicorn is the national animal of Scotland.
+The longest English word is 189,819 letters long.
