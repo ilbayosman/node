@@ -1,1 +1,1 @@
-You can’t hum while holding your nose closed.
+There’s a species of jellyfish that can live forever.
