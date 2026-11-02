@@ -1,1 +1,1 @@
-Sea otters hold hands when they sleep to avoid drifting apart.
+The average person walks the equivalent of five times around the world in a lifetime.
